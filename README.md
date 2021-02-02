@@ -3,7 +3,7 @@
 
 ## Title: Health factors that determine the overall development of the country.   
 
-## Team Members: Ayodeji, Victoria, and Behrooz
+## Team Members: Ayodeji, Victoria, Behrooz and Shola.
 
 ## Date: 30.01.2021
 
